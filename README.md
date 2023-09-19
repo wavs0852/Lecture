@@ -1,1 +1,1 @@
-# Lecture
+# About university lecture
